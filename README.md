@@ -1,2 +1,0 @@
-# punyaoka.github.io
-nulis
